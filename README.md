@@ -22,6 +22,6 @@
 结语  
 选择一个优质、稳定的日本AV免费平台，是现代用户追求高质量娱乐体验的明智之选。无论画质、更新频率还是用户体验，都远远领先于传统模式。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/yeah433566/avrb14 )</span>
 
 
